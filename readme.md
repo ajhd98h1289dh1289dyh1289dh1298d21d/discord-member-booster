@@ -1,4 +1,3 @@
-if u want to buy dm me on discord mciem#0001
+discord member booster (Ai Solver 4s average solving time)
 
-
-showcase: https://www.youtube.com/watch?v=WWhRw0wZPqo
+https://discord.gg/yuxtw7jSav
